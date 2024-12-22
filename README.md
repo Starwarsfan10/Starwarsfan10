@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Starwarsfan10
-- 👀 I’m interested in ... Star wars
-- 🌱 I’m currently learning ... Martial Arts
+- 👋 Hi, I’m your step father
+- 👀 I’m interested in ... your mom
+- 🌱 I’m currently learning ... your mom
 - 💞️ I’m looking to collaborate on ...cool games that can be fps or horror both are cool
 - 📫 How to reach me ... I dont really want to give away any of my private information but I do have a youtube channel @Grizzly-Gamer1
 - 😄 Pronouns: ... He/him
